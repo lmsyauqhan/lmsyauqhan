@@ -17,7 +17,6 @@ I’m excited to collaborate on:
 
 ## 📫 Contact Me
 Let's connect:
-- **Email**: your-email@example.com
 - **Discord**: Erzhan#0297
 
 ## 😄 Pronouns
