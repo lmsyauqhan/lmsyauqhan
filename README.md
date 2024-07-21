@@ -21,7 +21,7 @@ I’m eager to collaborate on:
 
 ## 📫 How to Reach Me
 Let’s connect and collaborate:
-- **Discord**: Lmsyauqhan#0297
+- **Discord**: jabran22_
 - **Email**: narbajj@gmail.com
   
 ## Pronouns
